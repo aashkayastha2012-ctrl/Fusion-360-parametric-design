@@ -5,3 +5,13 @@ These models are created to understand how parametric design works in SolidWorks
 
 heres the google drive link where you can observe the solid work,
 
+https://drive.google.com/drive/u/0/folders/16ViKeAFGQWENUwfTmn2ems7_5KqEQ31S
+
+Author
+Aashutosh kayastha
+department of electricala and electronic engineering in communication
+aash.kayastha2012@gmail.com
+https://www.linkedin.com/in/aashutosh-kayastha-01513131a?utm_source=share_via&utm_content=profile&utm_medium=member_android
+
+
+
