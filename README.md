@@ -7,9 +7,10 @@ heres the google drive link where you can observe the solid work,
 
 https://drive.google.com/drive/u/0/folders/16ViKeAFGQWENUwfTmn2ems7_5KqEQ31S
 
-Author
+Author--
+
 Aashutosh kayastha
-department of electricala and electronic engineering in communication
+department of electrical and electronic engineering in communication
 aash.kayastha2012@gmail.com
 
 
